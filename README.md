@@ -7,6 +7,6 @@
 - 📫 How to reach me but no one wants 😢😢😢😒 Message or foolow me here !!!
 
 <!---
-Vishwas-Shukla/Vishwas-Shukla is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Vishwas-Shukla/Nuisance is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
